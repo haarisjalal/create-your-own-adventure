@@ -1,0 +1,1 @@
+And staying away from bad content
